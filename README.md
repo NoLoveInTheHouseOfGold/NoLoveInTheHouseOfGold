@@ -1,1 +1,1 @@
-<img src="[https://files.catbox.moe/9yqln9.jpg" alt](https://media.discordapp.net/attachments/905252694380408852/1381677783788556439/Untitled147_20250609095402.png?ex=68486335&is=684711b5&hm=36f3af36bb35c082b0a8a7532862236ac79fa16eeb004a7eed739badc01ecd33&=&format=webp&quality=lossless&width=910&height=930)="">
+<img src="https://media.discordapp.net/attachments/905252694380408852/1381677783788556439/Untitled147_20250609095402.png?ex=68486335&is=684711b5&hm=36f3af36bb35c082b0a8a7532862236ac79fa16eeb004a7eed739badc01ecd33&=&format=webp&quality=lossless&width=910&height=930="">
